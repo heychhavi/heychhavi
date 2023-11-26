@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **chhavincv@gmail.com**
 
-- ⚡ Fun fact **Reading Books and Minds**
+- ⚡ Fun fact **Good at Reading Books and Minds.Always up for any adventure.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
