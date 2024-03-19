@@ -6,7 +6,7 @@
 
 - 👯 I’m looking to collaborate on **LLM Based Projects**
 
-- 📫 How to reach me **chhavincv@gmail.com**
+- 📫 How to reach me **chhavin6v@gmail.com**
 
 - ⚡ Fun fact **Good at Reading Books and Minds.Always up for any adventure.**
 
